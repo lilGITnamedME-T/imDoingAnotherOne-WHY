@@ -1,0 +1,1 @@
+// IMPORTANT- hey future me. You idiot. This is the teachable machine link. GOOD LUCK. https://teachablemachine.withgoogle.com/models/PO1ueE4x_/
